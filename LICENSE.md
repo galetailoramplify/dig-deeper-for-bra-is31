@@ -1,4 +1,4 @@
-#  
+#  Experience dig deeper for brainrots like never before with smart Scripts for dig deeper for brainrots, the #1 Script. Includes invisibility and god
 
 
 
